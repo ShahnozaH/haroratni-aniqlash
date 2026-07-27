@@ -1,0 +1,1 @@
+# haroratni-aniqlash
